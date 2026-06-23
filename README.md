@@ -6,7 +6,7 @@
 
 **Se Deus me desse uma segunda chance naquele momento,eu teria feito tudo igual**
 
-_o sucesso é treinavel_
+_posso levar uma arma?? tá eu jogo sanduíche neles_
 
 -II
 
