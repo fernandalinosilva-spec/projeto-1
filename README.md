@@ -4,7 +4,7 @@
 
 [abertura the last of us](https://www.youtube.com/watch?v=pfA5UqEU_80)
 
-**Se Deus me desse uma segunda chance naquele momento,eu teria eito tudo igual**
+**Se Deus me desse uma segunda chance naquele momento,eu teria feito tudo igual**
 
 _o sucesso é treinavel_
 
